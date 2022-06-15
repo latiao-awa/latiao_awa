@@ -4,4 +4,3 @@
 <p>discord:latiao#5751</p>
 <p>email:latiao@latiaoawa.cf</p>
 <p>Love You :3</p>
-<p>By:永遠愛你的latiao呀</p>
